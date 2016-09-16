@@ -1,1 +1,0 @@
-# T3DM-000011-Ferrure-HRM-LD1
